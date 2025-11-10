@@ -1,1 +1,1 @@
-## Hi, I'm abdurauf_ <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExZnd4aDlseHkxcm11c3YwMmNtN3pyNDR4bWRoMXlteG1hdmQ2dzh6bSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l1IB22SuYeEMMPTguL/giphy.gif" width="100px" > 
+## Hi, I'm abdurauf_ <img src="https://media.gipy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif " width="30px" > 
